@@ -1,0 +1,2 @@
+# Adiva-s-Grill
+Adiva’s grill started with the vision to serve you with nutritious and healthy grilled food that can awaken your taste buds. Our mission is to revolutionize the food industry and bring it back to its original objective of “Nourishment“ with healthy and tasteful grilled delicacies. It is a unique combination of an intriguing atmosphere with delightful and interesting food served tastefully amidst professional service.
